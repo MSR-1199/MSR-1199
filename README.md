@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Soni Reddy Maram
-- 👀 I’m interested to about Artificial Intelligence and Cyber Security
+- 👀 I’m interested to learn about Artificial Intelligence and Cyber Security
 - 🌱 I’m currently learning Artificial Intelligence 
 - 💞️ I’m looking to collaborate on about AI and Security
 - 📫 How to reach me Email: sonireddymaram@gmail.com and Phone: 9949095006
