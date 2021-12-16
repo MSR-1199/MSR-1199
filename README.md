@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MSR-1199
+- 👋 Hi, I’m Soni Reddy Maram
 - 👀 I’m interested to about Artificial Intelligence and Cyber Security
 - 🌱 I’m currently learning Artificial Intelligence 
 - 💞️ I’m looking to collaborate on about AI and Security
